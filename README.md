@@ -1,1 +1,1 @@
-# ACIES-2026
+# ACIES-2026The ACIES 2026 Award, presented by the Office of the Director of Socials/Culture, honors outstanding individuals and groups who have shown excellence in culture, leadership, creativity, and community impact. It celebrates those who strengthen our community, promote inclusivity, and inspire positive social engagement — with winners recognized at the ACIES 2026 celebration.
